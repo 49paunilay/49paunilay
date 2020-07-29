@@ -3,6 +3,6 @@
 
 [Let's go to instagram](https://www.instagram.com/__nilay_paul__/)
 [Let's go to Hackerrank](https://www.hackerrank.com/49paulnilay)
-[Let's go tp youtube](https://www.youtube.com/channel/UC1PTCNFmfOWVLMXyG--kc4Q)
+[Let's go to youtube](https://www.youtube.com/channel/UC1PTCNFmfOWVLMXyG--kc4Q)
 
 
